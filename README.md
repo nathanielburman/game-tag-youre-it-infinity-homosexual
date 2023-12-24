@@ -1,5 +1,15 @@
-# game-tag-youre-it-homosexual
+# game-tag-youre-it-infinity-homosexual
 This is the game the kids are playing in the underground that I heard from the backyard.
+
+Tag You're It Infinity!
+
+cops vs robbers
+coyboys vs indians
+cowboys vs horsey
+monkey vs deer
+ducks vs goose
+sharks vs fish
+wife vs money
 
 Homosexual tag your it! Homosexuals tag you and your it or out. If your homosexual then you become it and you tag more people until all are out or homosexual.
 
