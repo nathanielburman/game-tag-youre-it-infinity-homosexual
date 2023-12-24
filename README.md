@@ -16,6 +16,7 @@ ducks vs goose
 sharks vs fish 
 
 wife vs money (has to give money when tagged)
+this game is played with money or credits of value. you have to call to play. the last person wins the pot or wifey takes the pot!
 
 girlfriend vs photographer (has to take a picture when tagged)
 
