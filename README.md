@@ -7,15 +7,19 @@ cops vs robbers
 
 coyboys vs indians
 
-cowboys vs horsey
+cowboys vs horsey (boys are monkeys are ride the girls)
 
-monkey vs deer
+monkey vs deer (girls are monkeys and boys are deer)
 
 ducks vs goose
 
-sharks vs fish
+sharks vs fish 
 
-wife vs money
+wife vs money (has to give money when tagged)
+
+girlfriend vs photographer (has to take a picture when tagged)
+
+
 
 Homosexual tag your it! Homosexuals tag you and your it or out. If your homosexual then you become it and you tag more people until all are out or homosexual.
 
