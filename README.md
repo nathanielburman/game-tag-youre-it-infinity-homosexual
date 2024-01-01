@@ -20,7 +20,7 @@ this game is played with money or credits of value. you have to call to play. th
 
 girlfriend vs photographer (has to take a picture when tagged)
 
-
+doctor vs virus
 
 Homosexual tag your it! Homosexuals tag you and your it or out. If your homosexual then you become it and you tag more people until all are out or homosexual.
 
